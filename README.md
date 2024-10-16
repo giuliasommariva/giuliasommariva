@@ -1,4 +1,4 @@
-### Bem vindo ao meu perfil! 🖤
+### Olá veyr! 👅
 
 Meu nome é Giulia Fidelis Sommariva.
 
